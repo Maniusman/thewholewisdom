@@ -1,0 +1,2 @@
+# thewholewisdom
+Affiliate Store
